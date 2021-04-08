@@ -1,1 +1,0 @@
-// karnell dir
